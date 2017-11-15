@@ -1,2 +1,0 @@
-# qylanajwa.github.io
-hb
